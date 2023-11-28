@@ -1,2 +1,2 @@
-kinda vibin
-https://www.youtube.com/c/MosesNg/ go sub
+me when the
+https://www.youtube.com/c/MosesNg/
